@@ -1,2 +1,1 @@
-# Tupan
-The Creator
+### “The Spirit of Thunder”, Tupã is the great creator of the heavens, earth and seas, as well as the animal and plant world.
